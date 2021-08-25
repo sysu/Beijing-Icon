@@ -1,3 +1,5 @@
+![](welcome.jpg)
+
 [http://www.olympic.cn/](http://www.olympic.cn/)
 
 
